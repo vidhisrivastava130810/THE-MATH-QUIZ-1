@@ -1,1 +1,0 @@
-# THE-MATH-QUIZ-1
